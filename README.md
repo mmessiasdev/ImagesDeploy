@@ -1,13 +1,3 @@
-
-![Slide 16_9 - 1](https://github.com/user-attachments/assets/cfdbd8ec-3755-490a-b8d3-b10aeceb54b7)
-
-![Slide 16_9 - 2](https://github.com/user-attachments/assets/6c7b6b02-7156-42e7-bafd-06adacb2f838)
-
-
-
-![Slide 16_9 - 1](https://github.com/user-attachments/assets/2ad6e50a-08cf-4c7d-b9b2-231e8edc33b7)
-
-
 ![Frame 104](https://github.com/user-attachments/assets/81e7cc58-e762-4bc6-8d30-e4a119f8bf47)
 
 
