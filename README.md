@@ -23,6 +23,9 @@
 
 
 
+<img width="1395" height="759" alt="Captura de tela 2026-06-15 121051" src="https://github.com/user-attachments/assets/b5c0d52c-2810-45aa-814b-493249c1d1e3" />
+
+
 
 <img width="1080" height="1080" alt="image" src="https://github.com/user-attachments/assets/484a5f58-4d0a-41b4-8d1b-777391d4395d" />
 
