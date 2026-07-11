@@ -1,3 +1,4 @@
+<img width="2068" height="516" alt="logo emminova" src="https://github.com/user-attachments/assets/db3994a9-27ca-444f-b3e3-36ad4d66376d" />
 
 
 <img width="1080" height="1080" alt="icon" src="https://github.com/user-attachments/assets/d743e82b-1c07-43a2-a253-69a0f6fd7c56" />
